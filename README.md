@@ -1,1 +1,0 @@
-# Jahjimmy-barber-a-studio
